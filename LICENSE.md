@@ -1,4 +1,4 @@
-
+Enhance your Bitdefender VPN experience with high-speed Bitdefender VPN Client | free-trial + IKEv2-support, the #1 client. Includes free-trial and IKEv2-support for a safer and
 
 
 
